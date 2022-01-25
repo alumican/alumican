@@ -1,9 +1,15 @@
 🤝 Founder of THE GUILD  
+
 🎨 UI / UX / Interaction Designer  
+
 💻 Programmer  
+
 🎓 Lecturer of Tama Art University  
+
 🏢 President of my company  
+
 👶 Parent of a baby  
+
 🏠 Hiroshima ✈︎ Tokyo, Japan  
   
 and, I’m interested in 🍶🍣  
