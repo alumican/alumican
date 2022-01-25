@@ -7,11 +7,7 @@
 🏠 Hiroshima ✈︎ Tokyo, Japan  
   
 and, I’m interested in 🍶🍣  
-  
-┏━━━━━━━━━━━━━━━┓  
-     Thanks for visiting my profile 🎁  
-┗━━━━━━━━━━━━━━━┛  
-  
+    
 ⬇︎ My works are pinned on twitter📍  
 [Twitter/alumican_net](https://twitter.com/alumican_net)  
   
